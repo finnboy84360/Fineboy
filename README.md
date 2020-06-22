@@ -10,3 +10,5 @@ don't talk that much
 # Third step :
 silently watches the discussions and throw only emotes.
 
+# BONUS Step :
+Listen to lofi all the time , you'll be extra fine with that
