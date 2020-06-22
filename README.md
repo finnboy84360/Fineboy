@@ -1,12 +1,12 @@
 # Fineboy
 Tutorial on how to be a Fine guy like me
 
-First Step :
+# First Step :
 Be nice to all people even if they piss you off.
 
-Second Step :
+# Second Step :
 don't talk that much
 
-Third step :
+# Third step :
 silently watches the discussions and throw only emotes.
 
